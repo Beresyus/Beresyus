@@ -6,3 +6,4 @@
 Beresyus/Beresyus is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+Lover of history and games. Really enjoying from investigating something and doing sports. ^-^
